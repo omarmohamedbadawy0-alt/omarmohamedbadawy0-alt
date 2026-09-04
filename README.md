@@ -22,7 +22,7 @@
 ### 📫 كيف توصلني؟
 - GitHub: [@omarmohamedbadawy0-alt](https://github.com/omarmohamedbadawy0-alt)
 - البريد الإلكتروني: (Omarmohamedbadawy0@gmail.com)
-- LinkedIn: (حط لينك لو عندك)
+  
 
 ---
 
